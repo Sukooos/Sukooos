@@ -34,8 +34,8 @@
 ## 📫 Let's Connect
 
 - 💼 [Upwork Freelancer](https://www.upwork.com/freelancers/~01584aa2b81b83572c)
-- 🔗 [LinkedIn](https://linkedin.com/in/sukooos) <!-- (update jika sudah punya) -->
-- ✉️ Email: your@email.com <!-- ganti ke email lo -->
+- 🔗 [LinkedIn](https://www.linkedin.com/in/raja-zahran/) <!-- (update jika sudah punya) -->
+- ✉️ Email: rajazahran6@gmail.com <!-- ganti ke email lo -->
 
 ---
 
